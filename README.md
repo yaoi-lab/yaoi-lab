@@ -4,4 +4,4 @@ irdk what to say here at all
 
 ![Image](https://media.tenor.com/zkrUfbHXMuwAAAAd/harvey-harvey-harvington.gif)
 
-[ATABOOK] (https://hiidkformyname.atabook.org/?page=1)
+[ATABOOK](https://hiidkformyname.atabook.org/?page=1)
