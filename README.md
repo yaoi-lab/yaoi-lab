@@ -1,10 +1,6 @@
-## I love rmc
-hes my twinkiest husband I need him to ride me instead of his wyvern..
+## OK I HATE MY STRAW PAGE IT'S SO FUKKHING UGLY my ata is better also hot take but gingerbrave is lwk cute like I love himm
 
-![Image](https://media.tenor.com/3wzzET7488EAAAAd/royal-margarine-cookie-royal-margarine.gif)
+![Image](https://media.tenor.com/omjQCoLB5VoAAAAM/cookie-run-gingerbrave.gif)
 
 [ATABOOK](https://hiidkformyname.atabook.org/?page=1)
 
-[WIP STRAWPAGE](https://g4yest-yaoi.straw.page)
-
-[DON'T CLICK](https://youtube.com/shorts/PSbaAjvR4Y4?si=iF08KVxxuYeQ9WNy)
