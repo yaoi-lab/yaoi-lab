@@ -4,4 +4,4 @@
 
 [ATABOOK](https://hiidkformyname.atabook.org/?page=1)
 
-[JUSTICE FOR SUDAN]   [JUSTICE FOR PALESTINE]
+[JUSTICE FOR SUDAN]
