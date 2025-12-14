@@ -1,6 +1,6 @@
-## hot take but gingerbrave is lwk cute like I love himm
+## ✰
 
-![Image](https://media.tenor.com/CRkGouBY54cAAAAM/ginger-brave-crwc.gif)
+![Image](https://media.tenor.com/y3RQ06fJOREAAAAM/shadow-milk-cookie-cookie-run-kingdom.gif )
 
 [ATABOOK](https://hiidkformyname.atabook.org/?page=1)
 
