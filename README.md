@@ -1,6 +1,6 @@
-## ✰ LUKA!!!!
+## ✰ I love my twins ✌✌
 
-![Image](https://tenor.com/mLbYSZ0Uu1k.gif)
+![Image](https://media.tenor.com/880ksgu-mOoAAAAM/hyunaluka-sambea.gif)
 
 [atabook](https://mewzer.atabook.org/?page=1)
 
