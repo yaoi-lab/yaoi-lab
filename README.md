@@ -1,6 +1,6 @@
 ## ✰ hope bloomed through the abyss..
 
-![Image](https://media.tenor.com/ZDNh1YnfQ_8AAAAM/mizi-sua.gif)
+![Image](https://pin.it/5Hb0qzUt2)
 
 [atabook](https://mewzer.atabook.org/?page=1)
 
