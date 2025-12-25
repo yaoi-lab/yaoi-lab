@@ -1,6 +1,6 @@
-## ✰ hope bloomed through the abyss..
+## ✰ LUKA!!!!
 
-![Image](https://pin.it/5Hb0qzUt2)
+![Image](https://tenor.com/mLbYSZ0Uu1k.gif)
 
 [atabook](https://mewzer.atabook.org/?page=1)
 
