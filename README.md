@@ -1,4 +1,4 @@
-## ✰ I love my twins ✌✌
+## ✰ these two are my manjagae😂
 
 ![Image](https://media.tenor.com/880ksgu-mOoAAAAM/hyunaluka-sambea.gif)
 
